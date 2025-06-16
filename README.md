@@ -1,0 +1,2 @@
+# Tackling-Water-Access-and-Gender-Equality-Challenges-in-Maji-Ndojo
+This project addressed critical challenges, including inadequate water access and gender disparities in water resource availability.   Through these visuals, stakeholders gained valuable insights into the current state of water resources and were able to identify targeted strategies for improving water access in underserved regions.
